@@ -15,3 +15,9 @@ daily routine thats need to be followed
 -> from 9 to 11 (improve your skill)
 
 -> go to bed by 11 and start sleeping 
+
+
+
+
+
+Saturday at office timings (Clean cloths and clean home)
